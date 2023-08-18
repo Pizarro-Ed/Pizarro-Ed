@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Pizarro-Ed
+- 👀 I’m interested in Anime, Gaming, Sports, Life
+- 🌱 I’m currently learning Coding
+- 🙏🏽 I’m looking to collaborate on mostly everything i feel i can bring any type of help
+- 📫 How to reach me ed.pizarro23@outlook.com or WA - 7874551703
